@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for macOS with elite Adobe Audition for macOS Effect | scene-transitions + sound-design, the #1 effect. Includes scene-transitions and sound-design for a
 
 
 
